@@ -5,4 +5,3 @@
 - 🎸 I play guitar and synthesizers in my free time
 - 🎥 I'm learning how to start a YouTube!
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: I'm figuring out how to move to Portugal!
